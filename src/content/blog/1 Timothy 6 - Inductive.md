@@ -19,6 +19,8 @@ Main Point: All Christians, whether the slave or master, are called to devoted l
 
 Structure: Teach sound doctrine as has been laid out in this letter. You can recognize false teachers if they teach otherwise. False teachers are fools who understand nothing but think they are right. They take an unhealthy interest in biblically tangential topics. The Gospel has an answer to the problem of our heart but the false teachers will argue over anything to avoid the humility that comes from dwelling on the Gospel. They will read [Romans 8](Romans%208.md) and argue over predestination rather than a life lived in the Spirit.
 
+Literary/theological context: The paragraph before was concerned about how Christian slaves treat their masters, and how Christian masters treat their slaves. Each are done because all life deserves respect and so that the Gospel will reach both non-Christian masters and slaves.
+
 >Paul began his letter by addressing the false teachers, and here, he ends his letter in the same way. So far, Paul identifies false teachers by both their _doctrine_ and their _deeds_. These false teachers didn’t have **“love”** as their end goal (1 Tim. 1:5). Instead, their teaching led to ripping apart people’s spiritual lives, including their own (1 Tim. 1:20; 1 Tim. 4:1-2).
 >[1 Timothy 6:3-21 (The Hidden Costs of Materialism)](https://www.evidenceunseen.com/bible-difficulties-2/nt-difficulties/1-2-timothy-titus-philemon-hebrews-james-1-2-peter/introduction-to-1-2-timothy/#_Toc129947451)
 
