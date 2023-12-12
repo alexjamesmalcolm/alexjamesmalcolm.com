@@ -4,13 +4,16 @@ share: "true"
 
 >6 All who are under the yoke of slavery should consider their masters worthy of full respect, so that God’s name and our teaching may not be slandered. 2 Those who have believing masters should not show them disrespect just because they are fellow believers. Instead, they should serve them even better because their masters are dear to them as fellow believers and are devoted to the welfare of their slaves.
 
-Structure: Christians who are slaves of non Christian masters should fully respect their masters so that they will in turn respect the name of Christ. Christians who are slaves of Christian masters should respect them even more because they are believers and because the Christian masters are expected to hold the welfare of slaves as a high priority.
+##### Structure
+Christians who are slaves of non Christian masters should fully respect their masters so that they will in turn respect the name of Christ. Christians who are slaves of Christian masters should respect them even more because they are believers and because the Christian masters are expected to hold the welfare of slaves as a high priority.
 
-Literary/theological context: The paragraph before is about how our sins and good deeds are sometimes revealed quickly and sometimes revealed much later, but are always revealed. The point is that some people are more evil than we realize and some are more righteous than we realize.
+##### Literary/theological context
+The paragraph before is about how our sins and good deeds are sometimes revealed quickly and sometimes revealed much later, but are always revealed. The point is that some people are more evil than we realize and some are more righteous than we realize.
 
 The paragraph after this is a warning about false teachers.
 
-Main Point: All Christians, whether the slave or master, are called to devoted love of each other because we are all God's children. The world would have masters as tyrants and slaves as fearful but to instead act in love is a testament to Christ.
+##### Main Point
+All Christians, whether the slave or master, are called to devoted love of each other because we are all God's children. The world would have masters as tyrants and slaves as fearful but to instead act in love is a testament to Christ.
 
 
 ### False Teachers and the Love of Money
@@ -63,10 +66,21 @@ The previous paragraph is about how evil false teachers and their words are. The
 ##### Main Point
 The love of money is a lie of the world system that money will bring us joy when it really will only bring us ruin. Contentment with what we have and pursuit of God is great gain.
 
+The love of money is a lie of the world system that money will bring us joy but placing our hope in money will only bring us ruin. Contentment with what we have and pursuit of God is great gain.
+
+
+What are ways that we can hold onto contentment while we're entering into this new phase of life?
+- Gratitude
+- In college we were all the same but now we are at risk of comparing ourselves to others
+- Reminding ourselves that if we surround ourselves with stuff 
+- Hope in wealth is an uncertain foundation but giving our wealth for God is to make a strong foundation
+
+
 ### Final Charge to Timothy
 #### 1 Timothy 6:11-16
 >11 But you, man of God, flee from all this, and pursue righteousness, godliness, faith, love, endurance and gentleness. 12 Fight the good fight of the faith. Take hold of the eternal life to which you were called when you made your good confession in the presence of many witnesses. 13 In the sight of God, who gives life to everything, and of Christ Jesus, who while testifying before Pontius Pilate made the good confession, I charge you 14 to keep this command without spot or blame until the appearing of our Lord Jesus Christ, 15 which God will bring about in his own time—God, the blessed and only Ruler, the King of kings and Lord of lords, 16 who alone is immortal and who lives in unapproachable light, whom no one has seen or can see. To him be honor and might forever. Amen.
 
+God is worthy of us putting our hope in him rather than money.
 ##### Structure
 We are called to flee from materialism and instead pursue every kind of godliness. It is not enough to just flee. The beliefs in our heart must be challenged. By sharing God's values it will be harder for materialism to take a hold in our hearts.
 
@@ -81,6 +95,7 @@ I'm not sure who I am disagreeing with but as this quote, as it is written from 
 Paul connects the "good confession" that Timothy had once made with the "good confession" that [Jesus](Lord.md) made before [Pontius Pilate](Pontius%20Pilate.md). Before God, Paul charges Timothy to fight the good fight of faith until the return of Jesus.
 
 Paul praises God as the blessed and only Ruler, the King of kings, Lord of lords, who alone is immortal? Do we not also have immortal souls? In what sense is God the only immortal?
+This is the blue letter bible word for immortal: https://www.blueletterbible.org/lexicon/g110/nlt/mgnt/0-1/
 
 God lives in unapproachable light and no one has ever seen him. This reminds me of [Exodus 33:18-23](Exodus%2033.md) where God passes by [Moses](Moses.md) but he is not able to see God directly.
 
