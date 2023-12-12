@@ -14,6 +14,7 @@ Main Point: All Christians, whether the slave or master, are called to devoted l
 
 
 ### False Teachers and the Love of Money
+#### 1 Timothy 6:2-5
 
 >These are the things you are to teach and insist on. 3 If anyone teaches otherwise and does not agree to the sound instruction of our Lord Jesus Christ and to godly teaching, 4 they are conceited and understand nothing. They have an unhealthy interest in controversies and quarrels about words that result in envy, strife, malicious talk, evil suspicions 5 and constant friction between people of corrupt mind, who have been robbed of the truth and who think that godliness is a means to financial gain.
 
@@ -32,7 +33,7 @@ False teachers are evil accusers that are motivated by financial gain. Their wor
 >[1 Timothy 6:3-21 (The Hidden Costs of Materialism)](https://www.evidenceunseen.com/bible-difficulties-2/nt-difficulties/1-2-timothy-titus-philemon-hebrews-james-1-2-peter/introduction-to-1-2-timothy/#_Toc129947451)
 
 
-
+##### What are the things which Timothy is to teach and insist on?
 What are the things which Timothy is to teach and insist on? This question is important because it decides how we interpret the beginning of verse 3.
 
 What is the scope of the "these are the things," is it specifically about slaves, the preceding paragraph? The previous chapters teaching on widows and elders? Is it the entire letter? Or is it any teaching of proper doctrine?
@@ -48,15 +49,26 @@ That "these... things" refers to any proper doctrine would be an acceptable use 
 We could imagine that the friction is caused by a conflict over money but we could also just as easily imagine that the conflict is over
 
 
-
+#### 1 Timothy 6:6-10
 >6 But godliness with contentment is great gain. 7 For we brought nothing into the world, and we can take nothing out of it. 8 But if we have food and clothing, we will be content with that. 9 Those who want to get rich fall into temptation and a trap and into many foolish and harmful desires that plunge people into ruin and destruction. 10 For the love of money is a root of all kinds of evil. Some people, eager for money, have wandered from the faith and pierced themselves with many griefs.
 
 ##### Structure
-Living content with what we have rather than wishing for more is to live more inline with true reality (rather than the lies of the world system). We entered this world without any possessions and we will leave it in the same way. The only thing that we can take with us are the relationships that we build.
+The only thing that we can take with us into the next life are our relationships that we form here. This is the reality of the world that the lies of the world system obscure. There are no other possessions which we cane take with us into the next life. To live content with our basic needs met and in pursuit of relationships is of the greatest gain only behind personally knowing Christ.
+
+If we ignore this teaching and instead act on the lies of the world system we will be led to ruin and destruction. "The love of money is a root of all kinds of evil. Some people, eager for money, have wandered from the faith and pierced themselves with many griefs."
+
+##### Literary/theological context
+The previous paragraph is about how evil false teachers and their words are. The next paragraph is an exhortation to Timothy to flee from false teaching and love of money.
+
+##### Main Point
+The love of money is a lie of the world system that money will bring us joy when it really will only bring us ruin. Contentment with what we have and pursuit of God is great gain.
 
 ### Final Charge to Timothy
-
+#### 1 Timothy 6:11-16
 >11 But you, man of God, flee from all this, and pursue righteousness, godliness, faith, love, endurance and gentleness. 12 Fight the good fight of the faith. Take hold of the eternal life to which you were called when you made your good confession in the presence of many witnesses. 13 In the sight of God, who gives life to everything, and of Christ Jesus, who while testifying before Pontius Pilate made the good confession, I charge you 14 to keep this command without spot or blame until the appearing of our Lord Jesus Christ, 15 which God will bring about in his own time—God, the blessed and only Ruler, the King of kings and Lord of lords, 16 who alone is immortal and who lives in unapproachable light, whom no one has seen or can see. To him be honor and might forever. Amen.
+
+##### Structure
+We are called to flee from materialism and instead pursue every kind of godliness. It is not enough to just flee. The beliefs in our heart must be challenged. By sharing God's values it will be harder for materialism to take a hold in our hearts.
 
 >17 Command those who are rich in this present world not to be arrogant nor to put their hope in wealth, which is so uncertain, but to put their hope in God, who richly provides us with everything for our enjoyment. 18 Command them to do good, to be rich in good deeds, and to be generous and willing to share. 19 In this way they will lay up treasure for themselves as a firm foundation for the coming age, so that they may take hold of the life that is truly life.
 
