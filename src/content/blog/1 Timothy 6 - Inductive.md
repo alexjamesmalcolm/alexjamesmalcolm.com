@@ -2,6 +2,7 @@
 share: "true"
 ---
 
+#### 1 Timothy 6:1-2a
 >6 All who are under the yoke of slavery should consider their masters worthy of full respect, so that God’s name and our teaching may not be slandered. 2 Those who have believing masters should not show them disrespect just because they are fellow believers. Instead, they should serve them even better because their masters are dear to them as fellow believers and are devoted to the welfare of their slaves.
 
 ##### Structure
@@ -17,7 +18,7 @@ All Christians, whether the slave or master, are called to devoted love of each 
 
 
 ### False Teachers and the Love of Money
-#### 1 Timothy 6:2-5
+#### 1 Timothy 6:2b-5
 
 >These are the things you are to teach and insist on. 3 If anyone teaches otherwise and does not agree to the sound instruction of our Lord Jesus Christ and to godly teaching, 4 they are conceited and understand nothing. They have an unhealthy interest in controversies and quarrels about words that result in envy, strife, malicious talk, evil suspicions 5 and constant friction between people of corrupt mind, who have been robbed of the truth and who think that godliness is a means to financial gain.
 
