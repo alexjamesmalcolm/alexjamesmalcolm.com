@@ -70,6 +70,21 @@ The love of money is a lie of the world system that money will bring us joy when
 ##### Structure
 We are called to flee from materialism and instead pursue every kind of godliness. It is not enough to just flee. The beliefs in our heart must be challenged. By sharing God's values it will be harder for materialism to take a hold in our hearts.
 
+Paul calls us to fight the good fight of faith, which is a metaphor for either running, boxing, or wrestling. 
+
+What is this good confession that Timothy made in the presence of many witnesses?
+
+>Mounce and Earle understands this to be Timothy’s baptism (1 Tim. 1:18; 4:14). Perhaps. In our view, however, the context favors evangelism. In the very next verse, Paul refers to Jesus’ “good confession” in front of Pontius Pilate. So, evangelism seems to be in view.
+
+I'm not sure who I am disagreeing with but as this quote, as it is written from Evidence Unseen, does not make sense to me. 1 Timothy 1:18; 4:14 are not about Timothy's baptism but Timothy being raised up as a leader and possibly being sent off to the [Church in Ephesus](Church%20in%20Ephesus.md). After thinking about it for a while I am left to agree that this good confession is likely related to evangelism but it's not totally clear what exactly.
+
+Paul connects the "good confession" that Timothy had once made with the "good confession" that [Jesus](Lord.md) made before [Pontius Pilate](Pontius%20Pilate.md). Before God, Paul charges Timothy to fight the good fight of faith until the return of Jesus.
+
+Paul praises God as the blessed and only Ruler, the King of kings, Lord of lords, who alone is immortal? Do we not also have immortal souls? In what sense is God the only immortal?
+
+God lives in unapproachable light and no one has ever seen him. This reminds me of [Exodus 33:18-23](Exodus%2033.md) where God passes by [Moses](Moses.md) but he is not able to see God directly.
+
+
 >17 Command those who are rich in this present world not to be arrogant nor to put their hope in wealth, which is so uncertain, but to put their hope in God, who richly provides us with everything for our enjoyment. 18 Command them to do good, to be rich in good deeds, and to be generous and willing to share. 19 In this way they will lay up treasure for themselves as a firm foundation for the coming age, so that they may take hold of the life that is truly life.
 
 >20 Timothy, guard what has been entrusted to your care. Turn away from godless chatter and the opposing ideas of what is falsely called knowledge, 21 which some have professed and in so doing have departed from the faith.
