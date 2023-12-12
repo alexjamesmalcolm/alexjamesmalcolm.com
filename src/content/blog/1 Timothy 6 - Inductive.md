@@ -5,15 +5,15 @@ share: "true"
 #### 1 Timothy 6:1-2a
 >6 All who are under the yoke of slavery should consider their masters worthy of full respect, so that God’s name and our teaching may not be slandered. 2 Those who have believing masters should not show them disrespect just because they are fellow believers. Instead, they should serve them even better because their masters are dear to them as fellow believers and are devoted to the welfare of their slaves.
 
-##### Structure
+###### Structure
 Christians who are slaves of non Christian masters should fully respect their masters so that they will in turn respect the name of Christ. Christians who are slaves of Christian masters should respect them even more because they are believers and because the Christian masters are expected to hold the welfare of slaves as a high priority.
 
-##### Literary/theological context
+###### Literary/theological context
 The paragraph before is about how our sins and good deeds are sometimes revealed quickly and sometimes revealed much later, but are always revealed. The point is that some people are more evil than we realize and some are more righteous than we realize.
 
 The paragraph after this is a warning about false teachers.
 
-##### Main Point
+###### Main Point
 All Christians, whether the slave or master, are called to devoted love of each other because we are all God's children. The world would have masters as tyrants and slaves as fearful but to instead act in love is a testament to Christ.
 
 
@@ -56,15 +56,15 @@ We could imagine that the friction is caused by a conflict over money but we cou
 #### 1 Timothy 6:6-10
 >6 But godliness with contentment is great gain. 7 For we brought nothing into the world, and we can take nothing out of it. 8 But if we have food and clothing, we will be content with that. 9 Those who want to get rich fall into temptation and a trap and into many foolish and harmful desires that plunge people into ruin and destruction. 10 For the love of money is a root of all kinds of evil. Some people, eager for money, have wandered from the faith and pierced themselves with many griefs.
 
-##### Structure
+###### Structure
 The only thing that we can take with us into the next life are our relationships that we form here. This is the reality of the world that the lies of the world system obscure. There are no other possessions which we cane take with us into the next life. To live content with our basic needs met and in pursuit of relationships is of the greatest gain only behind personally knowing Christ.
 
 If we ignore this teaching and instead act on the lies of the world system we will be led to ruin and destruction. "The love of money is a root of all kinds of evil. Some people, eager for money, have wandered from the faith and pierced themselves with many griefs."
 
-##### Literary/theological context
+###### Literary/theological context
 The previous paragraph is about how evil false teachers and their words are. The next paragraph is an exhortation to Timothy to flee from false teaching and love of money.
 
-##### Main Point
+###### Main Point
 The love of money is a lie of the world system that money will bring us joy when it really will only bring us ruin. Contentment with what we have and pursuit of God is great gain.
 
 The love of money is a lie of the world system that money will bring us joy but placing our hope in money will only bring us ruin. Contentment with what we have and pursuit of God is great gain.
@@ -82,7 +82,7 @@ What are ways that we can hold onto contentment while we're entering into this n
 >11 But you, man of God, flee from all this, and pursue righteousness, godliness, faith, love, endurance and gentleness. 12 Fight the good fight of the faith. Take hold of the eternal life to which you were called when you made your good confession in the presence of many witnesses. 13 In the sight of God, who gives life to everything, and of Christ Jesus, who while testifying before Pontius Pilate made the good confession, I charge you 14 to keep this command without spot or blame until the appearing of our Lord Jesus Christ, 15 which God will bring about in his own time—God, the blessed and only Ruler, the King of kings and Lord of lords, 16 who alone is immortal and who lives in unapproachable light, whom no one has seen or can see. To him be honor and might forever. Amen.
 
 God is worthy of us putting our hope in him rather than money.
-##### Structure
+###### Structure
 We are called to flee from materialism and instead pursue every kind of godliness. It is not enough to just flee. The beliefs in our heart must be challenged. By sharing God's values it will be harder for materialism to take a hold in our hearts.
 
 Paul calls us to fight the good fight of faith, which is a metaphor for either running, boxing, or wrestling. 
