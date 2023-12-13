@@ -117,7 +117,20 @@ We ought to fight the good fight, which is following God. God is worthy of us pu
 ###### Main Point
 Hope in wealth is an uncertain foundation while putting our hope in God and our deeds in being generous and loving is a strong foundation.
 
-How could our homechurch grow in being "rich in good deeds" and being "generous and willing to share"?
+#### DQ: How could our homechurch grow in being "rich in good deeds" and being "generous and willing to share"?
+- Couple avenues, one more passive one more active
+	- Passive - Be generous and willing to share
+	- Active - Command them to do good and be rich in good deeds
+		- Something that would take more thought and planning, which is considerably more work
+		- Getting behind what [Josh Dannemiller](Josh%20Dannemiller.md) with Joe and hangout with him and watch football
+- At the bottom of the tower is your theology, and the top of the tower is your view of wealth.
+	- One thing we could do to avoid this is to make the most out of the meetings that we have to reinforce and develop our theology on life.
+	- Humility to know that we need insight
+	- The people around us have the exact same need and they need to be refreshed as well
+- Generosity is more than giving away your money. Giving your time, energy, is more valuable than giving money.
+- Giving goals for the homechurch to Dwell every year.
+- Both spouses have to get on board.
+	- We need to develop our own burden for this but it's a high call for leadership with our wives
 
 >20 Timothy, guard what has been entrusted to your care. Turn away from godless chatter and the opposing ideas of what is falsely called knowledge, 21 which some have professed and in so doing have departed from the faith.
 
