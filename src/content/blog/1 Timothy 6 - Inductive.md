@@ -65,8 +65,6 @@ If we ignore this teaching and instead act on the lies of the world system we wi
 The previous paragraph is about how evil false teachers and their words are. The next paragraph is an exhortation to Timothy to flee from false teaching and love of money.
 
 ###### Main Point
-The love of money is a lie of the world system that money will bring us joy when it really will only bring us ruin. Contentment with what we have and pursuit of God is great gain.
-
 The love of money is a lie of the world system that money will bring us joy but placing our hope in money will only bring us ruin. Contentment with what we have and pursuit of God is great gain.
 
 
