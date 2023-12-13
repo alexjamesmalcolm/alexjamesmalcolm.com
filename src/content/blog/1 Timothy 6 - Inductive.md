@@ -33,11 +33,13 @@ The paragraph after this one is about the dangers of a love of money. That those
 ###### Main Point
 False teachers are evil accusers that are motivated by financial gain. Their words are filled with every kind of evil. They distract from true godliness with their speech.
 
+##### Application
+We are each in danger of hiding our hearts from God behind our wealth (and other idols). The focus that these false teachers have on "controversies" and "words" can start subtle, it can begin as someone showing up to church, sitting in front of the word and yet hiding your heart from him so he cannot change you. We hide behind our idols (layers from *Encouragement*), chiefly in this chapter Materialism. This is the slow but certain decline into false spirituality.
+
 >Paul began his letter by addressing the false teachers, and here, he ends his letter in the same way. So far, Paul identifies false teachers by both their _doctrine_ and their _deeds_. These false teachers didn’t have **“love”** as their end goal (1 Tim. 1:5). Instead, their teaching led to ripping apart people’s spiritual lives, including their own (1 Tim. 1:20; 1 Tim. 4:1-2).
 >[1 Timothy 6:3-21 (The Hidden Costs of Materialism)](https://www.evidenceunseen.com/bible-difficulties-2/nt-difficulties/1-2-timothy-titus-philemon-hebrews-james-1-2-peter/introduction-to-1-2-timothy/#_Toc129947451)
 
-
-##### What are the things which Timothy is to teach and insist on?
+##### DQ: What are the things which Timothy is to teach and insist on?
 What are the things which Timothy is to teach and insist on? This question is important because it decides how we interpret the beginning of verse 3.
 
 What is the scope of the "these are the things," is it specifically about slaves, the preceding paragraph? The previous chapters teaching on widows and elders? Is it the entire letter? Or is it any teaching of proper doctrine?
@@ -68,11 +70,15 @@ The previous paragraph is about how evil false teachers and their words are. The
 The love of money is a lie of the world system that money will bring us joy but placing our hope in money will only bring us ruin. Contentment with what we have and pursuit of God is great gain.
 
 
-What are ways that we can hold onto contentment while we're entering into this new phase of life?
+##### DQ: What are ways that we can hold onto contentment while we're entering into this new phase of life?
 - Gratitude
 - In college we were all the same but now we are at risk of comparing ourselves to others
-- Reminding ourselves that if we surround ourselves with stuff 
+- Reminding ourselves that if we surround ourselves with stuff then it changes our perspective
+	- Today George broke Hope's birthday present for Carrie, and in response Hope pick George up, spun him in the air and dropped him.
 - Hope in wealth is an uncertain foundation but giving our wealth for God is to make a strong foundation
+	- 6:17, "...nor to put their hope in wealth, which is so uncertain" 6:19 "...they will lay up treasure for themselves as a firm foundation for the coming age"
+- Regard ourselves as being rich for a purpose, that purpose being to give out generously to others
+	- 6:18 "Command them to do good, to be rich in good deeds, and to be generous and willing to share."
 
 
 ### Final Charge to Timothy
@@ -98,8 +104,20 @@ This is the blue letter bible word for immortal: https://www.blueletterbible.org
 
 God lives in unapproachable light and no one has ever seen him. This reminds me of [Exodus 33:18-23](Exodus%2033.md) where God passes by [Moses](Moses.md) but he is not able to see God directly.
 
+###### Literary/theological context
+The previous paragraph is about how the love of money is a lie of the world system that money will bring us joy but placing our hope in money will only bring us ruin. Contentment with what we have and pursuit of God is great gain.
+
+The next paragraph is about commanding the rich Christians. They are at risk of putting their hope in wealth and sacrificing eternal rewards. Instead command them to be rich in good deeds and generous and willing to share.
+###### Main Point
+We ought to fight the good fight, which is following God. God is worthy of us putting our hope in him.
+
 
 >17 Command those who are rich in this present world not to be arrogant nor to put their hope in wealth, which is so uncertain, but to put their hope in God, who richly provides us with everything for our enjoyment. 18 Command them to do good, to be rich in good deeds, and to be generous and willing to share. 19 In this way they will lay up treasure for themselves as a firm foundation for the coming age, so that they may take hold of the life that is truly life.
+
+###### Main Point
+Hope in wealth is an uncertain foundation while putting our hope in God and our deeds in being generous and loving is a strong foundation.
+
+How could our homechurch grow in being "rich in good deeds" and being "generous and willing to share"?
 
 >20 Timothy, guard what has been entrusted to your care. Turn away from godless chatter and the opposing ideas of what is falsely called knowledge, 21 which some have professed and in so doing have departed from the faith.
 
